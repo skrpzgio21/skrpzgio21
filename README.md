@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @skrpzgio21
-- 👀 I’m interested in anything thats fun
+- 🤡 dow 2 clown
 - 🌱 I’m currently learnin
-- 💯 I’m looking to collaborate on anythin ndnlearn...
+- 💯 I’m looking to collaborate on anything and learn...
 - 📫 How to reach me ...
 
 <!---
